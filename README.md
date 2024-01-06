@@ -1,2 +1,1 @@
-# ai4k12
-ai4k12
+https:ai4k12.org/resources/list-of-resources/ https:ai4k12.org/resources/list-of-resources/ 
